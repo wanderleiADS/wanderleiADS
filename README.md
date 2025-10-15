@@ -4,7 +4,7 @@
 - 💞 ️ I try to collaborate on projects and whatever comes up I'm open to learning.
 - 📫 contact estudantedeti2025@gmail.com
 - 😄 
-- ⚡ Curiosity: I like reading and also drawing although I don't draw much these days, my hobby is cycling, running, contact with nature. I'm very  about technology. The news in the technological world is fascinating and I'm very interested.
+- ⚡ Curiosity: I like reading and also drawing although I don't draw much these days, my hobby is cycling, running, contact with nature. I'm very  about technology. The news in the technological world is fascinat and I'm very interested.
 
 
 
